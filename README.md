@@ -22,3 +22,6 @@ Chhath Puja is an ancient Hindu festival dedicated to the Sun God, Surya, and hi
    - Women, who typically observe the fast and lead the rituals, hold a central role in Chhath Puja. This highlights the spiritual and cultural power of women within the community. The puja is also believed to bless couples with children and protect family members, thus emphasizing its importance in family well-being.
 
 In essence, Chhath Puja is a celebration of the Sun’s life-giving energy, human resilience, and a harmonious relationship with nature. Through devotion and discipline, it seeks to bring peace, prosperity, and unity to individuals, families, and communities.
+
+**Fact** <br>
+Lord Rama and Sita performed Chhath Puja first.
